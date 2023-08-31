@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there, I'm new here, so see you another day soon. Bye 👋
 
 <!--
 **hemanthxc/hemanthxc** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
